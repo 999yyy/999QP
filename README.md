@@ -1,5 +1,5 @@
 # 999棋牌 最新地址发布 
-## 永 久 域 名：HttpS://999.vip
+## 永 久 域 名：HttpS://999qp.vip
 ## ⭐️ 👉 下载地址一 ：<a href="http://www-999qp.cc">www-999qp.cc</a>
 ## ⭐️ 👉 下载地址二 ：<a href="http://www-999qp.vip">www-999qp.vip</a>
 ## ⭐️ 👉 手机版地址一：<a href="http://www.999qp777.com">www.999qp777.com</a>
